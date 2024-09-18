@@ -1,2 +1,1 @@
-# assigment002repo
-assigment002repo
+Hi i am chang know 1st
